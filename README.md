@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KonstStore.github.io/rsschool-cv/
